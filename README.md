@@ -26,6 +26,6 @@ Software atau tool yang diperlukan sebelum instalasi:
 
 ## Download
 
-(https://drive.google.com/drive/folders/1uTZCutNd1DyltnI5tN9wtFY46e6yZUAJ?usp=sharing)
+https://drive.google.com/drive/folders/1OFDh8q-3byD44A5ql82ygdusoeYBxtKD?usp=sharing
 
 
